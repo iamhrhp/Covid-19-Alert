@@ -1,3 +1,3 @@
 # Covid-19-Alert UI
  
-![caption](https://gph.is/g/ZnQbYPL)
+![](https://media.giphy.com/media/LFMXEIonhCXHCveHUl/giphy.gif)
